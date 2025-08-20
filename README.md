@@ -6,7 +6,7 @@
 , @bocchanr
 , @yaoicream
 ,@deathofthydoctor
-, @sicksweetdreamy
+, @Sicksweetdreamy
 , @kouwaku
 , @K-ANTO
 , @4CHANGELS
