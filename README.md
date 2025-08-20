@@ -14,7 +14,7 @@
 , @tdlosk
 , @soulpharmastic
 , @OVA-DIO
-& @kadita-san .
+& @kadita-san . <br/>
 
   <p align="center">Vҽɾყ αƚƚɾαƈƚιʋҽ ρҽσρʅҽ</p>
 • @oceanasterism
