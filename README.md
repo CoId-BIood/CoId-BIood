@@ -1,6 +1,6 @@
 ## Cₗₒₛₑₛₜfᵣᵢₑₙdₛ
-- @omor0s
-- @Dr-IsamiYuri
+* @omor0s
+* @Dr-IsamiYuri
 ### 𝕄𝕪 𝕠𝕠𝕞𝕗𝕚𝕖𝕤 <br/>
 - @slaughterwolf
 - @Gackro
@@ -17,4 +17,8 @@
 - @OVA-DIO
 - kadita-san
 
-###
+### Vҽɾყ αƚƚɾαƈƚιʋҽ ρҽσρʅҽ
++ oceanasterism
++ TheRealShinichi
++ personalovely
++ paperrings
