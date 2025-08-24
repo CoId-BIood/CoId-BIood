@@ -21,7 +21,11 @@
 • @TheRealShinichi
 • @personalovely
 • @paperrings 
-•@lovethreat
+• @lovethreat
+• @ValleySheep
+
+  <p align="center">𝙲𝚞𝚝𝚎𝚜𝚝 𝚙𝚙𝚕</p>
++ @vigricot
 
 °•[Ata📚](https://eustassatabook.atabook.org/)
 •°[New Strawpage📕](https://coid-biood.straw.page)
