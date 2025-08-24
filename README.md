@@ -1,6 +1,6 @@
-   <p align="center">ᴄʟᴏꜱᴇꜱᴛꜰʀɪᴇɴᴅꜱ</p>
+   <p align="center">--ᴄʟᴏꜱᴇꜱᴛꜰʀɪᴇɴᴅꜱ--</p>
     <p align="center">@omor0s & @ Dr-IsamiYuri</p>  
-  <p align="center">𝕄𝕪 𝕠𝕠𝕞𝕗𝕚𝕖𝕤</p>
+  <p align="center">-~𝕄𝕪 𝕠𝕠𝕞𝕗𝕚𝕖𝕤~-</p>
 •• @slaughterwolf
 , @Gackro
 , @bocchanr
@@ -16,7 +16,7 @@
 , @OVA-DIO
 & @kadita-san . <br/>
 
-  <p align="center">Vҽɾყ αƚƚɾαƈƚιʋҽ ρҽσρʅҽ</p>
+  <p align="center">`~Vҽɾყ αƚƚɾαƈƚιʋҽ ρҽσρʅҽ~'</p>
 • @oceanasterism
 • @TheRealShinichi
 • @personalovely
@@ -24,8 +24,9 @@
 • @lovethreat
 • @ValleySheep
 
-  <p align="center">𝙲𝚞𝚝𝚎𝚜𝚝 𝚙𝚙𝚕</p>
-+ @vigricot
+   <p align="center">°▪︎𝙲𝚞𝚝𝚎𝚜𝚝 𝚙𝚙𝚕▪︎°</p>
+<p align="center">+ @vigricot</p> <b/>
+
 
 °•[Ata📚](https://eustassatabook.atabook.org/)
 •°[New Strawpage📕](https://coid-biood.straw.page)
