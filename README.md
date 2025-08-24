@@ -23,6 +23,6 @@
 • @paperrings 
 •@lovethreat
 
-°•[Ata](https://eustassatabook.atabook.org/)
-•°[Sp](https://nauu.straw.page)
-°•[Pin](https://pin.it/1x5n6R8Ce)
+°•[Ata📚](https://eustassatabook.atabook.org/)
+•°[New Strawpage📕](https://coid-biood.straw.page)
+°•[Pin📍](https://pin.it/1x5n6R8Ce)
