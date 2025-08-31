@@ -32,12 +32,11 @@
 
 
 
-   <b/> <p align="center">°▪︎𝙲𝚞𝚝𝚎𝚜𝚝 𝚙𝚙𝚕▪︎°</p>
-
-<p align="center">+ @vigricot</p> <b/>
-
+   <b/> 
+   <b/>
 
 
-°•[Ata📚](coldblood-ed.atabook.org)
-•°[New Strawpage📕](https://coid-biood.straw.page)
-°•[Pin📍](https://pin.it/1x5n6R8Ce)
+
+°•[Ata](coldblood-ed.atabook.org)
+•°[Strawpage](https://coid-biood.straw.page)
+°•[Pin](https://pin.it/1x5n6R8Ce)
