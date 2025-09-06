@@ -21,10 +21,11 @@
 , @OVA-DIO
 & @kadita-san . <br/>
 
-  <p align="center">`~Vҽɾყ αƚƚɾαƈƚιʋҽ ρҽσρʅҽ~'</p>
+  <p align="center">`~Vҽɾყ αƚƚɾαƈƚιʋҽ ρҽσρʅҽ~'</p> <b/>
+
 • @oceanasterism
 • @TheRealShinichi
-• @personalovely
+• @personlovely
 • @paperrings 
 • @lovethreat
 • @ValleySheep 
