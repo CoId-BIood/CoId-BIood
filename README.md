@@ -1,1 +1,2 @@
-<img width="1000" height="701" alt="Untitled3_20251219223257" src="https://github.com/user-attachments/assets/2fe18bcc-45da-4903-a047-0e72404433fe" />
+![Screenshot_20251222-200156_Chrome](https://github.com/user-attachments/assets/8c5634da-5466-4b60-9440-52c232c0caa5)
+Yeah..what the hell man. 
